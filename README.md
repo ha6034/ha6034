@@ -10,4 +10,4 @@ Together with our corporate partners we follow a lean methodology to create new 
    - Incubation
    - Growth
 
-@cartorjo What do you think about my profile 🐸 I just need to become more creative with the content 💡
+
